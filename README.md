@@ -1,5 +1,6 @@
 # Luz-Moya-Portafolio
 Actividades y Publicaciones con Cáritas Brasileira:
+<img width="343" height="247" alt="image" src="https://github.com/user-attachments/assets/ffee2038-1c05-41b6-8486-683836f1343e" />
 
 https://www.instagram.com/caritaspr/reel/DPCAuUkja7W/
 https://www.instagram.com/caritas.roraima/p/CzCejZQyf3B/
